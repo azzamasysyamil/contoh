@@ -1,2 +1,1 @@
-# contoh
-contoh aja
+KS DIVISI
